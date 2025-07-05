@@ -57,6 +57,6 @@ A certificate of completion will be issued by **CodTech** at the end of the inte
 ## 🔗 Author
 
 **Yuvashree S**  
-[LinkedIn](https://www.linkedin.com/in/your-profile) • [GitHub](https://github.com/your-username)
+[LinkedIn](https://www.linkedin.com/in/yuva-shree-s-3773842a3) • [GitHub](https://github.com/Yuvashree3103)
 
 ---
